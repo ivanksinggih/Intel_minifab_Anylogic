@@ -8,3 +8,12 @@ Thank you.
 Best regards,
 
 Ivan K. Singgih
+--------------------------------------------------------------------------
+Ivan Kristianto Singgih (Ph.D.)
+URL: https://www.researchgate.net/profile/Ivan_Singgih
+
+Postdoctoral Researcher
+Department of Industrial & Systems EngineeringAutomation Engineering LaboratoryKorea Advanced Institute of Science & Technology (KAIST)
+291 Daehak-ro, Yuseong-gu, Daejeon, 305-701
+Republic of Korea
+--------------------------------------------------------------------------
