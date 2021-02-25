@@ -6,5 +6,4 @@ Any discussion matters and research collaboration ideas can be sent by email to 
 Thank you.
 
 Best regards,
-
 Ivan K. Singgih
