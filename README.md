@@ -7,7 +7,7 @@ Thank you.
 
 Best regards,  
 Ivan K. Singgih
---------------------------------------------------------  
+  
 Ivan Kristianto Singgih (Ph.D.)  
 URL: https://www.researchgate.net/profile/Ivan_Singgih
 
